@@ -1,1 +1,1 @@
-mac book pro
+mac book
